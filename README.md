@@ -1,1 +1,0 @@
-# thebasicgospel.github.io
